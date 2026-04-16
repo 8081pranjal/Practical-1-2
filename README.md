@@ -1,1 +1,5 @@
 # Practical-1-2
+Pranjal Verma 
+1230645113
+BBA-BA(33)
+DATA PRIVACY & SECURITY
